@@ -1,0 +1,1 @@
+# for-qc-new-start-up-generational-wealth-
